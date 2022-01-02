@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Rahul Agrawal @REBeLLiON0110
+- 👋 Hi, I’m Rahul Agrawal @rahulagrawal0110
 - 🌱 I’m currently learning Computer Science at Korea Advanced Institute of Science and Technology.
 - 📫 How to reach me ...Email - agrahulgumla@gmail.com, Phone Number - +82 10-2178-8980
 
